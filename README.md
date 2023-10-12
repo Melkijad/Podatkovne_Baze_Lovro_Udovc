@@ -1,4 +1,4 @@
-# Podatkovne_Baze_Lovro_Hotevc
+# Podatkovne Baze: Lovro Udovč
 
 Nekje visoko gori na Gorjancih kipi črno pečevje. Med pečevjem se pa širi cvetnik, prav majhen vrtec, ves poln najlepših in najblagodušnejših rožic. To pečevje se težko najde, še teže pa se pride čezenj v čudoviti vrtec. In to je dobro. Kdorkoli je še zablodil v cvetnik, ga je zamaknila in prevzela krasota in dišava rožic tako neskončno, da je nehal misliti na jed in pijačo, na spanje in tudi na povratek in je poginil, ne čuteč nobene boli, od predolgega bedenja in stradanja. Blagor pa si ga tistemu, ki dobi po sreči ali naključju kak cvet teh plemenitih rožic. Ako se ženi, naj ga dene svoji nevesti v venec in živel bo z njo v krščanski spravi in ljubezni do groba. Že eno samo peresce utolaži zakonsko zdražbo, ako se položi razprtima zakoncema pod zglavje. Kdor nosi tak cvet s seboj, ne obhaja ga nobena jeza in nobena žalost, ne premaga ga noben sovražnik, ne predere nobena krogla. Zdaj pa čujmo kratko povest o tem gorjanskem cvetniku, ki mu ne najdemo para pod božjim soncem!
 
